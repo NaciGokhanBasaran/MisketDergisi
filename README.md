@@ -1,2 +1,2 @@
 # MisketDergisi
-İstanbul Üsküdar Lisesinin dergisi olan Mİsketin resmi web sitesi
+İstanbul Üsküdar Lisesinin dergisi olan Mİsketin eski  web sitesi
